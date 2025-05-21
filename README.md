@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rhodz!
 - 👀 I’m a fan of TWICE!
-- 🌱 I’m currently learning coding for my Bachelor of Science Major in Computer Engineering.
+- 🌱 I’m currently learning coding for future as a Software Engineer. Currently studying Bachelor of Science Major in Computer Engineering.
 - 💞️ I love my wifey, Hannah Jill.
 - 📫 How to reach me: Just call my name!
 - 😄 Pronouns: I'm a male so I'm a HE/HIM/HIS.
