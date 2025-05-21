@@ -1,10 +1,10 @@
-- 👋 Hi, I’m Gojo Satoru!
-- 👀 I’m interested in TWICE!
+- 👋 Hi, I’m Rhodz!
+- 👀 I’m a fan of TWICE!
 - 🌱 I’m currently learning coding for my Bachelor of Science Major in Computer Engineering.
-- 💞️ I’m looking to collaborate on Nanami Kento
+- 💞️ I love my wifey, Hannah Jill.
 - 📫 How to reach me: Just call my name!
 - 😄 Pronouns: I'm a male so I'm a HE/HIM/HIS.
-- ⚡ Fun fact: I'm an honored one.
+- ⚡ Fun fact: I am braindead.
 
 <!---
 castillogojosatoru/castillogojosatoru is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
