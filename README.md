@@ -4,7 +4,7 @@
 - 💞️ I love my wifey, Hannah Jill.
 - 📫 How to reach me: Just call my name!
 - 😄 Pronouns: I'm a male so I'm a HE/HIM/HIS.
-- ⚡ Fun fact: I am braindead.
+- ⚡ Fun fact: Langging ni Hanni.
 
 <!---
 castillogojosatoru/castillogojosatoru is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
